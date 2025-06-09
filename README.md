@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Anubhava-Jangwan
+- 👀 I’m interested in sports games and making new things
+- 🌱 I’m currently learning js
+- 📫 How to reach me anubhavajangwan@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i was actually a headboy of my school
