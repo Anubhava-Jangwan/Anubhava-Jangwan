@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning js
 - 📫 How to reach me anubhavajangwan@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i was actually a headboy of my school and i know a bit of japnese
+- ⚡ Fun fact: i know a bit of japnese
